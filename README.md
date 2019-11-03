@@ -32,3 +32,8 @@
 
 I also sell C++ scripts add me for more details.
 
+CONTACT - https://steamcommunity.com/id/salkfba32
+        - Cristi8#9778
+        - cristian.a81
+      
+    Have a great day :)
